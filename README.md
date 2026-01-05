@@ -1,3 +1,3 @@
 # cps-lab
 
-<p>i like berseker feet</p>
+<p>created solely for the purpose of revision. the author is against malpractice.</p>
